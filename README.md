@@ -1,1 +1,1 @@
-# my-second-repo
+# my-second-repoHobbies: Reading, Coding
